@@ -6,7 +6,7 @@
 
 - ### Temporariamente, os arquivos estão apenas em português
 
-- ### Espero que gostem destes conteúdos ; )
+- ### Espero que goste destes conteúdos ; )
   
   _Atenciosamente, Lucas Morais_
   
